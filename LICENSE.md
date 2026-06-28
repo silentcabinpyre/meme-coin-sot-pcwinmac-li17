@@ -1,4 +1,4 @@
-# 
+# Turbo meme coin sniper bot scripts para Mac OS | Exclusivo meme coin sniper bot scripts para PC Windows. Con optimización de precio de gas y estrategias de back-running — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
